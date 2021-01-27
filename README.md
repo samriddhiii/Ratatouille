@@ -1,0 +1,1 @@
+Ratatouille is a well-known vegetable stew hailing from Provence, a region in France famous for the bounty of its produce. Ratatouille is usually served as a side dish, but can be combined with pasta, rice, or fish to be served as a main dish or appetizer.
